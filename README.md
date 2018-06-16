@@ -1239,6 +1239,12 @@ Segmentation fault [core dumped]
 
 -------
 
+> Hay una Fuerza Motriz más Poderoza que el vapor , la electricidad y la energia atomica: LA VOLUNTAD
+
+*Albert Einsteing*
+
+-------
+
 > No soy feo, *Dios* me retó a conquistar mujeres en modo legendario!!
 
 *Unknown*
